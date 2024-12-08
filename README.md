@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning
 - 🌱 I’m currently learning as much as i can
 - 💞️ I’m looking to collaborate with you
-- 📫 How to reach me 
+- 📫 How to reach me: starshiker@proton.me
 - 😄 Pronouns: Me Myself & I
 - ⚡ Fun facts are not that fun
 
